@@ -43,3 +43,8 @@
 ![2_f76716a4-c697-4b73-9b89-8f00b8d13c1a](https://github.com/Saniyzehra123/urban_Images/assets/96076158/fba62854-e26c-4c0c-95c3-b5d599c8b7fa)
 ![1_683c68ec-c82d-4afe-a958-2b946ca63c35](https://github.com/Saniyzehra123/urban_Images/assets/96076158/519bfe46-fc9a-4e9b-9138-f6afcaaa6181)
 ![2_10050fee-72a5-47e4-8e52-d8e7c47413c5](https://github.com/Saniyzehra123/urban_Images/assets/96076158/d5d15d5c-c6db-44c9-b81c-fbb640100f88)
+![1_04ba86ce-c2f8-4ad3-a8fc-ca7d08feb5b1](https://github.com/Saniyzehra123/urban_Images/assets/96076158/e5018f19-d518-4f25-a058-cfaba7f07a47)
+![2_5a0f7d63-5a82-4968-b199-5eba29c23604](https://github.com/Saniyzehra123/urban_Images/assets/96076158/fa6b18f1-f4a9-4223-9e23-69e95b456a56)
+![web_banner](https://github.com/Saniyzehra123/urban_Images/assets/96076158/25852a37-ffe7-4178-af45-158a2d6f0c58)
+![web_banner_1](https://github.com/Saniyzehra123/urban_Images/assets/96076158/cf1a3f80-4b68-4342-a16c-8dcd85656ff1)
+![web_banner_2](https://github.com/Saniyzehra123/urban_Images/assets/96076158/5c877a00-5ed2-438f-9268-b9cabda1ca01)
