@@ -26,13 +26,5 @@
 ![UOFEFCTS0049_360x](https://user-images.githubusercontent.com/96076158/227699505-47e45471-31dc-44a1-ba21-9c4cc6ed7463.jpg)
 ![UOFEFCTS0050_360x](https://user-images.githubusercontent.com/96076158/227699507-e92e6cfb-d8d1-4141-bfec-cba539b09329.jpg)
 ![UOFEFCTS0051_360x](https://user-images.githubusercontent.com/96076158/227699508-42a5a356-0a75-48a8-b203-df599c57aae3.jpg)
-![1_04ba86ce-c2f8-4ad3-a8fc-ca7d08feb5b1](https://github.com/Saniyzehra123/urban_Images/assets/96076158/c73f372a-3d36-41f8-be11-59543a6c5f76)
-![2_5a0f7d63-5a82-4968-b199-5eba29c23604](https://github.com/Saniyzehra123/urban_Images/assets/96076158/948f6220-60bb-4c2f-9fbe-665c533b91fd)
-![web_banner_1](https://github.com/Saniyzehra123/urban_Images/assets/96076158/b6fa4fe9-6902-45a8-aa21-96c9f86e012f)
-![1_8e92fb86-8d8a-4af7-bbd0-2ca7a6f45c1e](https://github.com/Saniyzehra123/urban_Images/assets/96076158/6aba0dcf-62f1-42a9-8a41-f6c7f43bdc1e)
-![2_d0665d97-2014-40fd-b957-b6516e306699](https://github.com/Saniyzehra123/urban_Images/assets/96076158/5418790e-e99d-47da-ac3b-e8d9cd2c78f1)
-![1_032de9e4-ab66-4e68-84b6-d888c118c331](https://github.com/Saniyzehra123/urban_Images/assets/96076158/dc08cc48-d20f-4457-aa65-94731c460762)
-![1_905c8b67-2e48-4b8f-b47c-ff21f38d523d](https://github.com/Saniyzehra123/urban_Images/assets/96076158/a85a7662-8f27-45fe-b98e-18c8a8c8762e)
-![1_32bdff7d-13d6-4efd-b094-a4eec1a018a1](https://github.com/Saniyzehra123/urban_Images/assets/96076158/a152bd9b-4547-48b2-b994-09f923787576)
-![2_f76716a4-c697-4b73-9b89-8f00b8d13c1a](https://github.com/Saniyzehra123/urban_Images/assets/96076158/6f6d34d5-9c73-4196-a2f2-c8cf646a7748)
+ 
  
